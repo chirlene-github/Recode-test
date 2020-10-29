@@ -1,1 +1,1 @@
-By Chirlene Araújo and Fernando Araújo from RECODE 3 
+By Chirlene Araújo and Fernando Araújo from RECODE 3 - 2020
